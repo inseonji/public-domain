@@ -1,0 +1,2 @@
+# public-domain
+inseonji public
